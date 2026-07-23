@@ -1,2 +1,2 @@
 # lazy-the-calling-code
-not used
+Entertainment above all
